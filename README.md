@@ -5,9 +5,8 @@
 
 <p align="left"> <a href="https://twitter.com/bythenox" target="blank"><img src="https://img.shields.io/twitter/follow/bythenox?logo=twitter&style=for-the-badge" alt="bythenox" /></a> </p>
 
-- Mi ultimo servidor de RolePlay hispanohablante. [Clase Media | Fivem](https://discord.gg/uDzET6nKgr)
-
-- Mi actual proyecto de Minecraft. [Wirtux NetWork](discord.wirtux.net)
+- Actual proyecto de FiveM. [Distrito Roleplay](https://discord.gg/distritoroleplay)
+- Empresa de marketing digital [ZyraNet](https://zyranet.com)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
